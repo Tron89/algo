@@ -1,2 +1,2 @@
-Jeje, holis :)
-Giovanni joined the repo :D
+- Jeje, holis :)
+- Giovanni joined the repo :D
