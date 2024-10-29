@@ -1,2 +1,4 @@
 - Jeje, holis :)
 - Giovanni joined the repo :D
+- Tron usa cola ferrea!
+- No es muy efectivo... 
